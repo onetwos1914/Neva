@@ -227,4 +227,4 @@ Neva is available as a complete free version with all features and updates inclu
 Embark on your emotional journey today! Download Neva for free and experience a narrative adventure like no other.
 
 ---
-**Last updated:** 2026-09-28 10:35:12 UTC
+**Last updated:** 2026-09-28 18:27:25 UTC
